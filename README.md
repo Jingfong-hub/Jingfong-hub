@@ -1,1 +1,1 @@
-## Hello! This is Jingfong. I'm a front-end Developer
+Hi, I am happy to keep in touch! 
